@@ -10,7 +10,7 @@ Vem na prestação brinda quando quito<br>
 E o malê veio te confundir na escrita porque<br>
 Do Parque Bristol até a Bela Vista<br>
 Multa no para-brisa não é do manobrista<br>
-É o ódio da pista dizendo que a forma que o amo é mal quita<br>
+É o ódio da pista dizendo que a forma que o amo é mal vista<br>
 Ícone versus iconoclasta e lista<br>
 Tira sua onda já antes da crista<br>
 Mensagem de Rasta, provérbio hinduísta<br>
